@@ -1,7 +1,20 @@
-## THEY PLAYED US LIKE A DAMN FIDDLE!
+## Kept you waiting huh?
 
-![it&#39;s-peak-metal-gear-solid](https://github.com/user-attachments/assets/380a5e7e-f401-4610-8f2d-8ff3c34753d2)
+![metal-gear-solid-snake](https://github.com/user-attachments/assets/0d7438af-d942-4804-9146-5b6b052dae0a)
+
+born to shitcode
+
+world is a fuck
+
+鬼神 Kill em all 1984
+
+i am snake man
+
+410,757,864,530 merge conflicts
 
 ## little about me
 
-<img width="406" height="571" alt="Captura de pantalla de 2025-10-16 17-54-13" src="https://github.com/user-attachments/assets/d1f4f291-1d3f-4755-b83f-a42f9bbbe98f" />
+<img width="374" height="498" alt="image" src="https://github.com/user-attachments/assets/9eaa36fc-307f-4e89-91cc-f4044d85c274" />
+
+<img width="374" height="898" alt="image" src="https://github.com/user-attachments/assets/5ac2b769-ae4a-4f88-ad8f-c7aacc737893" />
+
